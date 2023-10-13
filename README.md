@@ -1,0 +1,1 @@
+This website is meant to provide my educational background, tutoring services, and calendar for people that are interested in being tutored in Math.
